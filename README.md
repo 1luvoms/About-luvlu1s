@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://omsdli.xyz/](https://omsdli.xyz/)
 
-- ⚡ Fun fact **I'm a fast learne**
+- ⚡ Fun fact **I'm a fast learner**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
